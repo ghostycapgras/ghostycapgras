@@ -19,3 +19,4 @@ heres my main dni list!
 6) joost klein antics
 7) constant reminder of my past and so on. if we communicate for a long time, and u constantly remind me of my past, ill freely block u.
  will be replenished...
+[![Слушать 2econd 2ight 2eer на Spotify](img/spotify-embed.svg)](open.spotify.com)
