@@ -20,5 +20,3 @@ heres my main dni list!
 7) constant reminder of my past and so on. if we communicate for a long time, and u constantly remind me of my past, ill freely block u.
 
  will be replenished...
-
-all screenshots on @WITHOUTCONT3XTANDSTUFF
