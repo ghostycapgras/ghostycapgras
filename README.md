@@ -18,8 +18,11 @@ heres my main dni list!
 5) homestuck fandom. sorry, but this fandom caused me, albeit a small, but still trauma. and i dont want to contact people from this fandom, plus it's a constant reminder of my past.
 6) joost klein antics
 7) constant reminder of my past and so on. if we communicate for a long time, and u constantly remind me of my past, ill freely block u.
+8) thorkie lovers. 
+9) pro- dark- shippers. u need a therapy.
 
  will be replenished...
+ WHERES MY THOR TO MY LOKI???
 ***
 
 # *PLEASE. IF WE BECOME FRIENDS AND YOU HAVE DRAMA WITH SOMEONE, DON'T BRING ME INTO IT. DON'T SAY "DON'T TALK TO THEM, THEY..." AND SO ON. I TALK TO THOSE I LIKE AS LONG AS THEY DON'T VIOLATE MY DNI-LIST.
