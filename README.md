@@ -22,6 +22,8 @@ heres my main dni list!
 9) pro- dark- shippers. u need a therapy.
 
  will be replenished...
+
+ @WITHOUTCONT3XTANDSTUFF check ts for laugh!!!!!!!!!!!!!
  
  WHERES MY THOR TO MY LOKI???
 ***
