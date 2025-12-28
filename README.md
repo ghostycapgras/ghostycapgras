@@ -20,6 +20,7 @@ heres my main dni list!
 7) constant reminder of my past and so on. if we communicate for a long time, and u constantly remind me of my past, ill freely block u.
 8) thorkie lovers. 
 9) pro- dark- shippers. u need a therapy.
+10 heavy dni is ure posting / support / look at will wood photos, where he is a 19 or younger. youre FUCKING DISGUSTING. 
 
  will be replenished...
 
