@@ -20,7 +20,7 @@ heres my main dni list!
 7) constant reminder of my past and so on. if we communicate for a long time, and u constantly remind me of my past, ill freely block u.
 8) thorkie lovers. 
 9) pro- dark- shippers. u need a therapy.
-10) heavy dni is ure posting / support / look at will wood photos, where he is a 19 or younger. ure FUCKING DISGUSTING. 
+10) heavy dni is ure posting / support / search will wood photos, where he is a 19 or younger. ure FUCKING DISGUSTING. 
 11) <img width="408" height="133" alt="Снимок экрана 2026-01-03 092245" src="https://github.com/user-attachments/assets/c9425439-63ac-4190-9b22-07e578014991" /> & <img width="126" height="230" alt="Снимок экрана 2026-01-03 092237" src="https://github.com/user-attachments/assets/de7a0e64-67a0-4374-9438-9c134a631576" />.and his friends. Do not incite hatred towards those born in Russia/Pakistan etc. 
 12) DSMP FD, dniuf.
 13) You harass people who were born in the "wrong country" (Russia, Pakistan, etc.), and you think that if all people were born there, then they support terrorism, etc.
