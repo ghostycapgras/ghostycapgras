@@ -40,7 +40,7 @@ I like to create AUs related to my hyperfixations/songs (like Will Wood) and Mar
 
 I really love making friends!! Please feel free to join me, even if my nickname doesn't have C+H. Or, if I don't specify anything else, like DNI, etc.
 
-Please subscribe to my atabook :з. 
+Please sign my atabook :з. 
 
 And my Discord isn't working, simply because my VPN isn't working. But it will be fixed soon, as I'll pay for it... Anyway, my DS: russiandepute2369
 
