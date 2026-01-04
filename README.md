@@ -38,11 +38,19 @@ And sometimes I'm TOO LAZY to edit messages. But I don't write with periods!
 
 I like to create AUs related to my hyperfixations/songs (like Will Wood) and Marvel. I love DC and Marvel, especially Gotham.
 
-By the way, I really love making friends!! Please feel free to join me, even if my nickname doesn't have C+H. Or, if I don't specify anything else, like DNI, etc.
+I really love making friends!! Please feel free to join me, even if my nickname doesn't have C+H. Or, if I don't specify anything else, like DNI, etc.
 
 Please subscribe to my atabook :з. 
 
 And my Discord isn't working, simply because my VPN isn't working. But it will be fixed soon, as I'll pay for it... Anyway, my DS: russiandepute2369
+
+You CAN be inspired by my skins if you want, but don't copy them exactly.
+
+I'm colorblind. I can't tell the difference between bright blue and bright purple, or dark blue and dark purple. So don't be surprised if I say my skin is blue when it's purple.
+
+I might be shy at first until I feel comfortable.
+
+And when I play on my phone, I go AFK.
 
 
     PLEASE. IF WE BECOME FRIENDS AND YOU HAVE DRAMA WITH SOMEONE, DON'T BRING ME INTO IT. DON'T SAY "DON'T TALK TO THEM, THEY..." AND SO ON. I TALK TO THOSE I LIKE AS LONG AS THEY DON'T VIOLATE MY DNI-LIST.
