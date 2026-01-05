@@ -63,3 +63,14 @@ i love yapping about rats and my will wood au A LOT. tell me if u uncomfortable!
 <img width="1915" height="492" alt="Снимок экрана 2026-01-05 193856" src="https://github.com/user-attachments/assets/8fd4c611-b3df-4878-815f-a6c52f442927" />
 
 <p align="center"><strong>i love my friends btw</strong></p>
+
+<img width="850" height="315" alt="image" src="https://github.com/user-attachments/assets/fddbbb57-963e-407d-82ec-cd617a8e3d2f" />
+
+
+$$
+\begin{center}
+\color{red}\textbf{Famous but talentless—who the fuck you think you are, Martin Garrix?} \\
+\color{blue}\textbf{I’ll make you cry like I’m some drunk (/Boo-hoo).} \\
+\color{white}\textbf{I’ll take you out easy, like tagging my little brother (He's weak).}
+\end{center}
+$$
