@@ -69,8 +69,8 @@ i love yapping about rats and my will wood au A LOT. tell me if u uncomfortable!
 
 $$
 \begin{gathered}
-\color{red}\textbf{Example of red colored text.} \\
-\color{blue}\textbf{Example of blue colored text.} \\
-\color{lightgray}\textbf{Example of light gray colored text.}
+\color{red}\textbf{Famous but talentless—who the fuck you think you are, Martin Garrix?} \\
+\color{blue}\textbf{I’ll make you cry like I’m some drunk (/Boo-hoo).} \\
+\color{white}\textbf{I’ll take you out easy, like tagging my little brother (He's weak).}
 \end{gathered}
 $$
