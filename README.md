@@ -75,17 +75,8 @@ $$
 \end{gathered}
 $$
 
-$$
-\begin{gathered}
-\textbf{Famous but talentless—who do you think you are, Martin Garrix?} \\
-\textbf{I’ll make you cry like I’m some drunk.} \\
-\textbf{I’ll take you out easy, like tagging my little brother (He's weak).}
-\end{gathered}
-$$
-
 <p align="center">
   <a href="www.youtube.com">
     <img src="img.youtube.com" alt="Watch the video" width="600">
   </a>
 </p>
-
