@@ -77,6 +77,6 @@ $$
 
 <p align="center">
   <a href="www.youtube.com">
-    <img src="img.youtube.com" alt="Watch the video" width="600">
+    <img src="img.youtube.com" width="600">
   </a>
 </p>
