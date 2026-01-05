@@ -26,6 +26,7 @@ heres my main dni list!
 13) You harass people who were born in the "wrong country" (Russia, Pakistan, etc.), and you think that if all people were born there, then they support terrorism, etc.
 14) RATS HATES. HEAVY DNI.
 15) radical russophobia. This relates to point 11 of my DNI-list.
+16) FISH MOONEY FANS. HEAVY DNI.
 
  will be replenished....
 
