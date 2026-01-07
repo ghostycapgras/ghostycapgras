@@ -46,8 +46,6 @@ I really love making friends!! Please feel free to join me, even if my nickname 
 
 Please sign my atabook :з. 
 
-And my Discord isn't working, simply because my VPN isn't working. But it will be fixed soon, as I'll pay for it... Anyway, my DS: russiandepute2369
-
 You CAN be inspired by my skins if you want, but don't copy them exactly.
 
 I'm colorblind. I can't tell the difference between bright blue and bright purple, or dark blue and dark purple. So don't be surprised if I say my skin is blue when it's purple.
