@@ -24,9 +24,10 @@ heres my main dni list!
 11) <img width="408" height="133" alt="Снимок экрана 2026-01-03 092245" src="https://github.com/user-attachments/assets/c9425439-63ac-4190-9b22-07e578014991" /> & <img width="126" height="230" alt="Снимок экрана 2026-01-03 092237" src="https://github.com/user-attachments/assets/de7a0e64-67a0-4374-9438-9c134a631576" />.and his friends. Do not incite hatred towards those born in Russia/Pakistan etc. 
 12) DSMP FD, dniuf.
 13) You harass people who were born in the "wrong country" (Russia, Pakistan, etc.), and you think that if all people were born there, then they support terrorism, etc.
-14) RATS HATES. HEAVY DNI.
+14) RATS HATERS. HEAVY DNI.
 15) radical russophobia. This relates to point 11 of my DNI-list.
 16) FISH MOONEY FANS. HEAVY DNI.
+17) agere regressors ; regressors to puppies ; etc. ure on **VERY** thin ice, i dont know how to communicate with you.
 
  will be replenished....
 
