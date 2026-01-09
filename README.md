@@ -27,6 +27,7 @@ heres my main dni list!
 15) radical russophobia. This relates to point 11 of my DNI-list.
 16) FISH MOONEY FANS. HEAVY DNI.
 17) agere regressors ; regressors to puppies ; etc. ure on **VERY** thin ice, i dont know how to communicate with you.
+18) Aggressive WLW fans. I have nothing against WLW as long as you don't start aggressively speaking out against MLM pairings, saying things like "straight people don't exist" (a local Russian joke from the Russian queer community, but still, you never know, someone might be making that joke outside of Russia too) and similar things.
 
  will be replenished....
 
