@@ -59,8 +59,6 @@ i love yapping about rats and my will wood au A LOT. tell me if u uncomfortable!
 ---
 
 
-    PLEASE. IF WE BECOME FRIENDS AND YOU HAVE DRAMA WITH SOMEONE, DON'T BRING ME INTO IT. DON'T SAY "DON'T TALK TO THEM, THEY..." AND SO ON. I TALK TO THOSE I LIKE AS LONG AS THEY DON'T VIOLATE MY DNI-LIST.
-                        does not relate to the drama of Loki and his friend*
 <img width="1915" height="492" alt="Снимок экрана 2026-01-05 193856" src="https://github.com/user-attachments/assets/8fd4c611-b3df-4878-815f-a6c52f442927" />
 
 <p align="center"><strong>i love my friends btw</strong></p>
