@@ -59,6 +59,7 @@ i love yapping about rats and my will wood au A LOT. tell me if u uncomfortable!
 
 my hcurrent hyperfixations is **MARVEL**, Gotham and ***STRANGER THINGS***. i love it. 
 
+# ***My social battery drains in literally 10-20 minutes and sometimes takes a very long time to charge. Please take this into account.***
 ---
 
 
