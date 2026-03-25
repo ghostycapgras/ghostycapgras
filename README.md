@@ -14,7 +14,7 @@ dni <img width="408" height="133" alt="Снимок экрана 2026-01-03 0922
 
 ![3675b8da362e8fa5f38b4a2feed84ac7](https://github.com/user-attachments/assets/5d8d19ae-3291-49c6-81ca-2ed6189b8dfe)
 
-# **IF I WRITE "DNI" IN MY NICKNAME, IT MEANS "DNI." IF YOU WRITE ANYTHING TO ME OR JUST SAY THE WORD "INTERACT." I WILL INSULT YOU. I DON'T CARE IF IT'S JUST A GAME. YOU'RE RUINING MY MOOD EVEN WORSE. YOURE NOT FUNNY.**
+# **IF I WRITE "DNI" IN MY NICKNAME, IT MEANS "DNI". IF YOU WRITE ANYTHING TO ME OR JUST SAY THE WORD "INTERACT." I WILL INSULT YOU. I DON'T CARE IF IT'S JUST A GAME. YOU'RE RUINING MY MOOD EVEN WORSE. YOURE NOT FUNNY.**
 
 **Homestuck FD, don't even fucking subscribe to my GitHub. I'll ban you instantly. If my nickname says "HOMESTUCK - DNFI" but I'm wearing the Eridan skin OR ANY HOMESTUCK SKIN, that means I'm just wearing a skin that's 2 or 3 years old. I haven't been in the fandom for a long time.** BUT! I can make an exception for you if you are a Will Wood fan or are in any FD I am in.
 
