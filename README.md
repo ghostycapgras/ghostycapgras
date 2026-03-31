@@ -22,6 +22,8 @@ By the way, I always support victims, as long as it doesn't involve my hyperfixa
 
 I use a translator to write complex sentences, so there will sometimes be delays in responses. :p
 
+I laugh at those who EXACTLY consider themselves Loki, and not just kinnies. guys, forgive me, but for me you are Kringe and iwvec :)) u are very strange!
+
 And sometimes I'm TOO LAZY to edit messages. But I don't write with periods!
 
 I like to create AUs related to my hyperfixations/songs (like Will Wood) and Marvel. I love DC and Marvel, especially Gotham.
