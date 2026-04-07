@@ -16,7 +16,6 @@ dni <img width="408" height="133" alt="Снимок экрана 2026-01-03 0922
 ![3675b8da362e8fa5f38b4a2feed84ac7](https://github.com/user-attachments/assets/5d8d19ae-3291-49c6-81ca-2ed6189b8dfe)
 
 
-<img width="1915" height="492" alt="Снимок экрана 2026-01-05 193856" src="https://github.com/user-attachments/assets/8fd4c611-b3df-4878-815f-a6c52f442927" />
 
 
 
