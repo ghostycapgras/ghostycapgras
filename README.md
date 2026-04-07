@@ -2,67 +2,21 @@ i love stealing cherrys, grapes, etc
 I STOLED TONEY STRAWPAGE!!! /J
 <img width="1631" height="891" alt="Снимок экрана 2026-04-07 092046" src="https://github.com/user-attachments/assets/d7532639-c205-4bb0-8a1f-9035ff69b795" />
 
+# WIP IN HUGE PROCESS. check my strawpage for information
 
 <div align="center">
   <img src="https://komarev.com/ghpvc/?username=ghostycapgras&color=gray" alt="Счетчик просмотров профиля GitHub">
 </div>
-<img width="735" height="767" alt="c7c98ef557d3eef702a0928e8e62905f-Photoroom" src="https://github.com/user-attachments/assets/73053da3-a55e-47ba-b4e1-30d991400b20" />
+
+
 
 ***
 dni <img width="408" height="133" alt="Снимок экрана 2026-01-03 092245" src="https://github.com/user-attachments/assets/c9425439-63ac-4190-9b22-07e578014991" /> & <img width="126" height="230" alt="Снимок экрана 2026-01-03 092237" src="https://github.com/user-attachments/assets/de7a0e64-67a0-4374-9438-9c134a631576" />.and his friends. Do not incite hatred towards those born in Russia/Pakistan etc. 
-# ***check my strawpage!!!***
 
 ![3675b8da362e8fa5f38b4a2feed84ac7](https://github.com/user-attachments/assets/5d8d19ae-3291-49c6-81ca-2ed6189b8dfe)
-
-# **IF I WRITE "DNI" IN MY NICKNAME, IT MEANS "DNI". IF YOU WRITE ANYTHING TO ME OR JUST SAY THE WORD "INTERACT." I WILL INSULT YOU. I DON'T CARE IF IT'S JUST A GAME. YOU'RE RUINING MY MOOD EVEN WORSE. YOURE NOT FUNNY.**
-
-**Homestuck FD, don't even fucking subscribe to my GitHub. I'll ban you instantly. If my nickname says "HOMESTUCK - DNFI" but I'm wearing the Eridan skin OR ANY HOMESTUCK SKIN, that means I'm just wearing a skin that's 2 or 3 years old. I haven't been in the fandom for a long time.** BUT! I can make an exception for you if you are a Will Wood fan or are in any FD I am in.
-
-By the way, I always support victims, as long as it doesn't involve my hyperfixations (the same MSI), so if you've been accused of something, please don't be surprised if I stop talk with you.
-
-I use a translator to write complex sentences, so there will sometimes be delays in responses. :p
-
-heavy kinns of deadpool / loki and etc iwvec. especsially loki kinns.
-
-And sometimes I'm TOO LAZY to edit messages. But I don't write with periods!
-
-I like to create AUs related to my hyperfixations/songs (like Will Wood) and Marvel. I love DC and Marvel, especially Gotham.
-
-I really love making friends!! Please feel free to join me, even if my nickname doesn't have C+H. Or, if I don't specify anything else, like DNI, etc.
-
-Please sign my atabook :з. 
-
-You CAN be inspired by my skins if you want, but don't copy them exactly.
-
-I'm colorblind. I can't tell the difference between bright blue and bright purple, or dark blue and dark purple. So don't be surprised if I say my skin is blue when it's purple.
-
-I might be shy at first until I feel comfortable.
-
-And when I play on my phone, I go AFK.
-
-i love yapping about rats and my will wood au A LOT. tell me if u uncomfortable!
-
-my hcurrent hyperfixations is **MARVEL**, ****WILL WOOD**** and ***STRANGER THINGS***. i love it. 
-
-did u know im not deadpool kinnie/local 
-
-PLS TELL ME IF U FEEL UNCOMFORTABLE WHEN I NEED TO STFU IN SRS WAY!!!!! i say a lot of weird shit!!!!!
-
-im lonely asf. so if u have a permission of c + h i will always ask for permissions first.
-
-# ***My social battery drains in literally 10-20 minutes and sometimes takes a very long time to charge. Please take this into account.***
----
 
 
 <img width="1915" height="492" alt="Снимок экрана 2026-01-05 193856" src="https://github.com/user-attachments/assets/8fd4c611-b3df-4878-815f-a6c52f442927" />
 
-<p align="center"><strong>i love my friends btw</strong></p>
 
-<img width="849" height="296" alt="image" src="https://github.com/user-attachments/assets/fb3ed755-e9a7-4e84-bfdd-611e3c9bd02a" />
-
-# NYX JUST A BABY!!!!!!!!!!!!!! #fuckskinstealer!!!
-
----
-
-# I have some attachment issues and am drawn to people with terrible personalities. Don't be surprised if I sit with someone who has a document written against them or show a desire to communicate with them. I blame myself for this, but I can't do anything about it.THIS ALSO MEANS THAT IF YOU HAVE A TERRIBLE PERSONALITY AND YOU ARE A CREEP, THEN I WILL TRY TO MAKE FRIENDS WITH YOU. Thank you for understanding.
 
