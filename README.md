@@ -9,6 +9,9 @@ I STOLED cpn-cook STRAWPAGE!!! /J ratsrats.straw.page CHECK TO MAKE SURE!!!!!
 </div>
 
 
+<img width="1440" height="1884" alt="youraislopboresme (3)" src="https://github.com/user-attachments/assets/c01d758f-1ddf-4ddd-926f-f9485a1abe36" />
+
+
 
 ***
 
