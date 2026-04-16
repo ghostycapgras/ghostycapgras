@@ -2,7 +2,7 @@
 
 
 theres location of this territory, bottom left of the market <img width="1177" height="771" alt="image" src="https://github.com/user-attachments/assets/49eb998e-c7a1-4a90-8428-844d81a4e7ff" />
-
+and again. i will not answer in dc / other socials. firstly, my vpnS and proxies (yes, vpns) isnt working, secondly i almost dont want tp talk with anyone..
 
 
 
