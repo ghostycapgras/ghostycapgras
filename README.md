@@ -10,4 +10,4 @@
 
 
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=ghostycapgras&color=gray&label=how%20many%20hours%20im%20going%20to%20teach%20tony%20russian" alt="Счетчик просмотров профиля GitHub"></div>
+<img src="https://komarev.com/ghpvc/?username=ghostycapgras&color=gray&label=eminem%20stans%20or%20my%20fans" alt="Счетчик просмотров профиля GitHub">
