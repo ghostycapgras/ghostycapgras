@@ -1,4 +1,6 @@
-<img width="480" height="270" alt="ly peace out! ig @therealstanmitchell" src="https://github.com/user-attachments/assets/c8a95f2c-55ef-4cd1-a6b0-24d86100f550" />
+<p align="center">
+  <img src="<img width="480" height="270" alt="ly peace out! ig @therealstanmitchell" src="https://github.com/user-attachments/assets/87ee390d-6ec1-4ac2-bcdd-c993aa2180a9"/>" width="100%" alt="Описание гифки">
+</p>
 
 
 <div align="center">
