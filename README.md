@@ -12,6 +12,6 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=ghostycapgras&color=gray&label=eminem%20stans%20or%20my%20fans" alt="Счетчик просмотров профиля GitHub">
 
-<div align="center" style="border: 3px solid #8B0000; border-radius: 30px; padding: 20px 35px; display: inline-block; background-color: #1a1a1a;">
-  <span style="color: white;">"But Slim, what if you win? Wouldn't it be weird?"</span>
+<div align="center" style="border: 3px solid #8B0000; border-radius: 30px; padding: 15px; display: inline-block;">
+  "But Slim, what if you win? Wouldn't it be weird?"
 </div>
