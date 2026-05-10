@@ -22,4 +22,4 @@
   </table>
 </div>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=You+write+normal%3F+Fuck+bein'+normal!&width=700&height=60&size=22&pause=2000&color=FFFFFF&background=000000&center=false)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=You+write+normal%3F+Fuck+bein'+normal!&width=800&size=20)](https://git.io/typing-svg)
